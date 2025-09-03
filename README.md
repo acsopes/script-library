@@ -1,7 +1,7 @@
 # Scriptfinder – Script Collection
 
 Welcome to **Scriptfinder** 🎉  
-This is a collection of playful scripts, all in one place, for easy access and learning.  
+This is a collection of steal a brainrot scripts 
 
 ---
 
